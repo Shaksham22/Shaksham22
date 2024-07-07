@@ -1,4 +1,4 @@
-# Ahoy! 🌊
+# Konnichiwa! 
 
 ### About Me 🌟
 
